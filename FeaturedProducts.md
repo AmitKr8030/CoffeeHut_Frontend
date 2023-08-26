@@ -1,0 +1,1 @@
+- New discount details for Coffehut_Wallet and loyal customers
